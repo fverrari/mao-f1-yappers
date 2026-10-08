@@ -4,8 +4,7 @@ first i like ferrari, second i believe ferrari will wdc this year, third i want 
 
 
 
-![](https://i.pinimg.com/originals/a1/38/54/a13854ee88ec59a72dfc4bbad89cdb79.gif)
-
+<img src="https://i.pinimg.com/originals/a1/38/54/a13854ee88ec59a72dfc4bbad89cdb79.gif" width="100%">
 
 
 
